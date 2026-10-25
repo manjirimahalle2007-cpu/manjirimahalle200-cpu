@@ -1,0 +1,1 @@
+# manjirimahalle200-cpu
